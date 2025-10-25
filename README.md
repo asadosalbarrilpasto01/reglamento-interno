@@ -1,0 +1,394 @@
+# REGLAMENTO INTERNO DE TRABAJO DE EMBUTIDOS DEL CORRAL
+
+## Información General de la Empresa
+Embutidos del Corral es una empresa dedicada a la elaboración de productos cárnicos embutidos. Nuestras operaciones incluyen la elaboración, corte, empaque, embalaje y distribución al por mayor de nuestros productos. Estamos ubicados en el Corregimiento de Catambuco, Municipio de Pasto, Colombia. El propietario de la empresa es Federico Jurado, identificado con Cédula de Ciudadanía número 123456789.
+
+---
+
+## CAPÍTULO I: Disposiciones Generales
+
+### Artículo 1: Objeto y Ámbito de Aplicación
+En Embutidos del Corral, establecemos este Reglamento Interno de Trabajo con el propósito fundamental de fomentar un ambiente laboral armónico, productivo y respetuoso. Reconocemos la importancia de la sana convivencia y la promoción del trabajo digno y decente como pilares esenciales para nuestro crecimiento y sostenibilidad. Por ello, asumimos la responsabilidad de definir las normas de orden técnico y administrativo, así como los derechos y deberes que rigen la relación entre la empresa y nuestros colaboradores.
+
+Las disposiciones contenidas en este reglamento son de aplicación obligatoria para todos los trabajadores que presten sus servicios a Embutidos del Corral, sin distinción de la naturaleza de su vinculación (ya sea a término indefinido, a término fijo, por obra o labor determinada), y forman parte integral de su contrato laboral.
+
+### Artículo 2: Día de Descanso Obligatorio
+En Embutidos del Corral, el día de descanso obligatorio remunerado para todos nuestros colaboradores es el domingo.
+
+---
+
+## CAPÍTULO II: Condiciones de Admisión
+
+### Artículo 3: Proceso de Postulación
+En Embutidos del Corral, para quienes aspiran a formar parte de nuestro equipo, el proceso de postulación a una vacante de interés se realiza exclusivamente a través de las bolsas públicas de empleo.
+
+#### Parágrafo 1: Documentación Requerida
+Una vez preseleccionado en la plataforma, solicitamos a los aspirantes presentar en nuestras instalaciones la siguiente documentación:
+* Hoja de Vida, acompañada de los soportes y la acreditación de los estudios realizados.
+* Fotocopia de la Cédula de Ciudadanía.
+* Tarjeta profesional o el documento habilitante para ejercer la profesión, según corresponda.
+* Certificación del último empleador donde haya laborado, o una declaración en caso de ser su primera experiencia laboral.
+* Certificado de Esquema de Vacunación, de acuerdo con el cargo a desempeñar.
+
+#### Parágrafo 2: Prohibiciones en la Solicitud de Documentos
+En Embutidos del Corral, nos comprometemos a solicitar únicamente los documentos permitidos por la normativa legal vigente. Nos abstenemos de requerir información expresamente prohibida, tales como datos sobre el estado civil, el número de hijos, la religión o la afiliación política. De igual manera, no exigimos la prueba de gravidez a mujeres, a menos que la actividad a desempeñar esté catalogada como de alto riesgo, ni el examen de VIH/SIDA, ni la libreta militar (salvo las excepciones legales aplicables). Reconocemos y respetamos plenamente los derechos fundamentales de los aspirantes y la legislación laboral colombiana (Constitución Política de Colombia, Art. 43; Convenio N° 111 de la OIT, Arts. 1° y 2°; Resolución 3941 de 1994 del Ministerio de Trabajo; Resolución 1843 de 2025 del Ministerio del Trabajo).
+
+---
+
+## CAPÍTULO III: Período de Prueba
+
+### Artículo 4: Objeto del Período de Prueba
+En Embutidos del Corral, una vez admitido un aspirante, podremos acordar un período inicial de prueba. Este período tiene un doble objetivo: permitirnos evaluar las aptitudes del trabajador para el desempeño del cargo y, a su vez, que el trabajador valore la conveniencia de las condiciones de trabajo ofrecidas, conforme a lo establecido en el artículo 76 del Código Sustantivo del Trabajo (C.S.T.).
+
+### Artículo 5: Estipulación del Período de Prueba
+En Embutidos del Corral, el período de prueba será estipulado por escrito. En ausencia de esta formalidad, la relación laboral se entenderá regulada por las normas generales del contrato de trabajo desde su inicio, según lo establece el numeral primero del artículo 77 del C.S.T.
+
+### Artículo 6: Duración Máxima del Período de Prueba
+En Embutidos del Corral, el período de prueba no excederá de dos (2) meses. Para contratos a término fijo con una duración inferior a un (1) año, el período de prueba no podrá ser superior a la quinta parte del término inicialmente pactado, sin exceder los dos (2) meses. Si se celebran contratos de trabajo sucesivos entre la misma empresa y el mismo trabajador, la estipulación de un nuevo período de prueba no será válida, salvo que se trate del primer contrato, de acuerdo con el artículo 7 de la Ley 50 de 1990 (que modifica el Artículo 78 del C.S.T. sobre duración máxima del período de prueba).
+
+### Artículo 7: Terminación durante el Período de Prueba y Derechos del Trabajador
+Durante el período de prueba, el contrato podrá darse por terminado unilateralmente por cualquiera de las partes en cualquier momento y sin previo aviso. No obstante, si una vez expirado el período de prueba, el trabajador continúa prestando sus servicios con nuestro consentimiento expreso o tácito, los servicios prestados se considerarán regulados por las normas del contrato de trabajo desde la iniciación de dicho período. Reconocemos que los trabajadores en período de prueba gozan de todas las prestaciones sociales, conforme al artículo 80 del C.S.T.
+
+---
+
+## CAPÍTULO IV: Contrato de Aprendizaje
+
+### Artículo 8: Definición y Objeto del Contrato de Aprendizaje
+En Embutidos del Corral, entendemos el contrato de aprendizaje como un contrato laboral especial y a término fijo, regido por las normas sustantivas del Código Sustantivo del Trabajo. A través de este, una persona natural desarrolla formación teórica-práctica en una entidad autorizada, mientras nosotros, como empresa patrocinadora, proporcionamos los medios para que adquiera una formación profesional metódica y completa, requerida en el oficio, actividad, ocupación o profesión. Esto implica que el aprendiz se desempeñe dentro del manejo administrativo, operativo, comercial o financiero propio de nuestras actividades, por un tiempo determinado no superior a tres (3) años, recibiendo un apoyo de sostenimiento mensual. Nos basamos en lo establecido en el Decreto 1072 de 2015, Artículo 2.2.6.3.1 (Decreto Único Reglamentario del Sector Trabajo).
+
+### Artículo 9: Elementos Particulares del Contrato de Aprendizaje
+En Embutidos del Corral, consideramos que los elementos particulares y especiales del contrato de aprendizaje son:
+* La finalidad principal es facilitar la formación en las ocupaciones a las que se refiere este artículo.
+* La subordinación está referida exclusivamente a las actividades propias del aprendizaje.
+* La formación se recibe a título estrictamente personal.
+* El apoyo de sostenimiento mensual tiene como fin garantizar el proceso de aprendizaje. Durante toda la vigencia de la relación, el aprendiz recibirá de nuestra empresa un apoyo de sostenimiento mensual, de la siguiente manera:
+    * **Formación Dual:** Durante el primer año, el setenta y cinco por ciento (75%) de un (1) salario mínimo legal mensual vigente; durante el segundo año, el cien por ciento (100%) de un (1) salario mínimo legal mensual vigente.
+    * **Formación Tradicional:** En la fase lectiva, el setenta y cinco por ciento (75%) de un (1) salario mínimo mensual vigente; en la fase práctica, el cien por ciento (100%) de un salario mínimo mensual legal vigente.
+    * **Estudiante Universitario:** El apoyo de sostenimiento mensual no podrá ser inferior al equivalente a un (1) salario mínimo legal vigente, sin importar si la formación es o no dual.
+
+#### Parágrafo: Cobertura de Seguridad Social para Aprendices
+Durante la fase lectiva, el aprendiz estará cubierto por el sistema de seguridad social en salud y riesgos laborales, siendo Embutidos del Corral responsable del pago total como dependiente. Durante la fase práctica o durante toda la formación dual, el aprendiz estará afiliado a riesgos laborales y al sistema de seguridad social integral en pensiones y salud, conforme al régimen de trabajadores dependientes, y tendrá derecho al reconocimiento y pago de todas las prestaciones, auxilios y demás derechos propios del contrato laboral.
+
+### Artículo 10: Duración del Contrato de Aprendizaje
+En Embutidos del Corral, el contrato de aprendizaje tendrá una duración máxima de dos (2) años y deberá comprender tanto la etapa lectiva o académica como la práctica o productiva, salvo en los siguientes casos, en los cuales se circunscribirá al otorgamiento de formación práctica empresarial:
+* **Práctica de Estudiantes Universitarios:** La duración máxima de la relación de aprendizaje será la que señale el respectivo programa curricular para las prácticas, sin que exceda el término máximo de dos (2) años.
+* **Prácticas de Estudiantes Técnicos y Tecnólogos:** La duración máxima de la relación de aprendizaje será de un (1) año, siempre y cuando las prácticas estén contempladas en el pénsum académico debidamente aprobado por la autoridad competente.
+
+### Artículo 11: Terminación del Contrato de Aprendizaje y Obligación de Reemplazo
+En Embutidos del Corral, una vez terminada la relación de aprendizaje por cualquier causa, nos comprometemos a reemplazar al aprendiz para mantener la proporcionalidad y a informar de inmediato a la Regional del Servicio Nacional de Aprendizaje (SENA) donde funcione nuestro domicilio principal. El SENA podrá verificar esta información en cualquier momento, de acuerdo con el Artículo 8 del Decreto 933 de 2003 (que reglamenta el Contrato de Aprendizaje).
+
+---
+
+## CAPÍTULO V: Trabajadores Accidentales o Transitorios
+
+### Artículo 12: Definición y Derechos
+En Embutidos del Corral, consideramos trabajadores accidentales o transitorios a aquellos que prestan una labor orientada a satisfacer necesidades extraordinarias de la empresa, que escapan al giro ordinario de nuestra actividad. Esta vinculación es por un breve lapso que no puede exceder de un (1) mes. La temporalidad de la vinculación debe coincidir con la naturaleza de la actividad, siendo esta ajena a nuestra finalidad principal. La labor del trabajador ocasional responde a exigencias y necesidades momentáneas o extraordinarias que justifican la brevedad de su vinculación.
+
+Reconocemos que, a pesar de estas particularidades, al tratarse de una de las formas de contrato de trabajo contempladas en la ley laboral, incorpora los mismos elementos esenciales que deben concurrir en un contrato de trabajo, conforme al Artículo 23 del Código Sustantivo del Trabajo (C.S.T.), modificado por la Ley 2466 de 2025. Por lo tanto, estos trabajadores tienen derecho, además del salario, al descanso remunerado en dominicales y festivos.
+
+---
+
+## CAPÍTULO VI: Trabajo en Casa y Teletrabajo
+
+### Artículo 13: Distinción entre Trabajo Ocasional y Teletrabajo
+En Embutidos del Corral, una persona que tenga la condición de asalariado no será considerada teletrabajador por el mero hecho de realizar ocasionalmente su trabajo en su domicilio o en un lugar distinto a nuestras instalaciones habituales, en lugar de hacerlo en su lugar de trabajo acostumbrado.
+
+### Artículo 14: Definiciones de Teletrabajo y Teletrabajador
+En Embutidos del Corral, acogemos las siguientes definiciones de la normativa colombiana vigente respecto al teletrabajo (Ley 1221 de 2008, Decreto 0884 de 2012, Decreto 1072 de 2015, y Circular 0027 de 2019).
+* **TELETRABAJO:** Es una forma de organización laboral, que se efectúa en el marco de un contrato de trabajo o de una relación laboral dependiente, que consiste en el desempeño de actividades remuneradas utilizando como soporte las Tecnologías de la Información y la Comunicación (TIC) para el contacto entre el trabajador y la empresa, sin requerir la presencia física del trabajador en un sitio específico de trabajo.
+* **TELETRABAJADOR:** Es la persona que, en el marco de la relación laboral dependiente, utiliza las tecnologías de la información y comunicación como medio o fin para realizar su actividad laboral fuera de las instalaciones de la empresa, en cualquiera de las formas definidas por la ley.
+
+### Artículo 15: Objetivos del Programa de Teletrabajo
+* Potenciar el trabajo en términos del cumplimiento de objetivos, más allá del tiempo de presencia física en el lugar de trabajo.
+* Aumentar el compromiso, la identidad y el nivel de motivación de nuestro personal con la organización y las labores desempeñadas.
+* Disminuir el ausentismo laboral.
+
+### Artículo 16: Igualdad de Derechos y Obligaciones
+En Embutidos del Corral, reconocemos que los trabajadores y teletrabajadores tendrán los mismos derechos, obligaciones y garantías. El teletrabajador no perderá ningún derecho por ostentar tal condición. La igualdad de trato abarca:
+* La protección en materia de seguridad social (Sistema General de Pensiones, Sistema General de Seguridad Social en Salud y Riesgos Laborales), de conformidad con lo previsto en la Ley 100 de 1993 y sus normas modificatorias o adicionatorias (Sistema General de Seguridad Social).
+* La remuneración.
+* El acceso a la formación.
+* La protección de la maternidad. Las teletrabajadoras tendrán derecho a retornar al mismo puesto de trabajo o a un puesto equivalente con la misma remuneración, al término de la licencia de maternidad.
+* El respeto al derecho a la intimidad y privacidad del teletrabajador.
+
+### Artículo 17: Requisitos Técnicos para el Teletrabajo
+En Embutidos del Corral, las necesidades técnicas del teletrabajador estarán en función de las exigencias del trabajo encomendado, siendo requisitos mínimos los siguientes:
+* Un computador personal con las condiciones adecuadas para realizar las tareas asignadas, el cual podrá ser suministrado por la empresa o por el teletrabajador, según se acuerde.
+* Una conexión de banda ancha con una velocidad adecuada y suficiente para las tareas que se lleven a cabo.
+* Una cuenta de correo electrónico corporativo.
+* Las demás condiciones técnicas necesarias para desempeñar el teletrabajo.
+
+### Artículo 18: Compromisos sobre Equipos y Confidencialidad
+En Embutidos del Corral, asumimos los siguientes compromisos respecto a los equipos, aplicaciones, documentación y suministros entregados para el teletrabajo:
+* Proporcionaremos las herramientas específicas (hardware/software) que consideremos necesarias para el desarrollo de las funciones e implementaremos las correspondientes medidas de control y acceso, con el fin de garantizar la protección de datos y de los equipos y aplicaciones entregadas. De igual forma, el teletrabajador deberá respetar lo contemplado en las leyes colombianas, así como las instrucciones por escrito que reciba de sus supervisores o jefes inmediatos.
+* El teletrabajador no podrá comunicar a terceros, salvo autorización expresa y escrita de nuestra parte, o por orden de las autoridades competentes, la información que posea sobre su trabajo cuyo origen provenga del uso de tecnologías de la información que le hayamos suministrado. Esto aplica especialmente a asuntos de naturaleza reservada o cuya divulgación pueda causar perjuicios a la empresa o a las personas a quienes prestamos el servicio. Lo anterior no impide la denuncia de delitos comunes o violaciones del contrato o de las normas legales de trabajo ante las autoridades competentes.
+* El teletrabajador no podrá compartir los usuarios y/o contraseñas personales de la empresa que le hayan sido entregados con ocasión del teletrabajo contratado.
+* El teletrabajador deberá conservar, mantener y devolver en buen estado, salvo deterioro natural y razonable, en el momento en que lo solicitemos, los instrumentos, equipos informáticos y los útiles que le hayamos facilitado para la prestación de sus servicios.
+
+---
+
+## CAPÍTULO VII: Horario de Trabajo
+
+### Artículo 19: Horarios Establecidos
+En Embutidos del Corral, las horas de entrada y salida de los trabajadores, para los días laborales de lunes a sábado, se establecen de la siguiente manera:
+
+| Personal | Horario |
+| :--- | :--- |
+| Personal Administrativo | Lunes a Viernes: Mañana: de 8:00 a.m. a 12:00 p.m. / Hora de almuerzo: 12:00 p.m. a 2:00 p.m. / Tarde: 2:00 p.m. a 5:00 p.m. |
+| Personal Operativo y de Cocina (Sede Villa Moreno) | (Información incompleta en el texto original) |
+
+---
+
+## CAPÍTULO VIII: Trabajo Dominical y Festivo
+
+### Artículo 20: Aviso de Trabajo Dominical Habitual
+En Embutidos del Corral, cuando se trate de trabajos habituales o permanentes en domingo, fijaremos en un lugar público del establecimiento, con una anticipación mínima de doce (12) horas, la relación del personal de trabajadores que, por razones del servicio, no pueda disponer del descanso dominical. En esta relación se incluirán también el día y las horas de descanso compensatorio, conforme al Artículo 185 del Código Sustantivo del Trabajo (C.S.T.).
+
+### Artículo 21: Duración del Descanso Obligatorio
+En Embutidos del Corral, el descanso en los días domingos y los demás días expresados en el Artículo 2 de este reglamento, tiene una duración mínima de 24 horas, salvo la excepción consagrada en el literal C del Artículo 20 de la Ley 50 de 1990 (Artículo 25 Ley 50 de 1990).
+
+### Artículo 22: Pago de Días de Fiesta no Determinados por Ley
+Cuando por motivo de fiesta no determinada en la Ley 51 del 22 de diciembre de 1983, Embutidos del Corral suspendiere el trabajo, estamos obligados a pagarlo como si se hubiera realizado. No estamos obligados a pagarlo cuando haya mediado convenio expreso para la suspensión o compensación en otro día hábil, o cuando la suspensión o compensación esté prevista en el reglamento, pacto, convención colectiva o fallo arbitral. Este trabajo compensatorio se remunerará sin que se entienda como trabajo suplementario o de horas extras, conforme al Artículo 178 del C.S.T.
+
+---
+
+## CAPÍTULO IX: Vacaciones Remuneradas
+
+### Artículo 23: Derecho a Vacaciones
+En Embutidos del Corral, los trabajadores que hayan prestado sus servicios durante un (1) año tienen derecho a quince (15) días hábiles consecutivos de vacaciones remuneradas, según el Artículo 186, numeral 1º del C.S.T.
+
+La época de vacaciones será señalada por nuestra empresa a más tardar dentro del año subsiguiente al cumplimiento del año de servicio. Las vacaciones serán concedidas de oficio o a petición del trabajador, siempre que no perjudiquen el servicio y garanticen la efectividad del descanso.
+
+Informaremos al trabajador con al menos quince (15) días de anticipación la fecha en que se le concederán las vacaciones.
+
+Mantendremos un registro de vacaciones en el que se anotará la fecha de ingreso de cada trabajador, la fecha en que toma sus vacaciones, en que las termina y la remuneración de las mismas (Decreto 1072 de 2015, Artículo 2.2.1.2.2.1).
+
+### Artículo 24: Interrupción Justificada de Vacaciones
+Si se presenta una interrupción justificada en el disfrute de las vacaciones, el trabajador no perderá el derecho a reanudarlas, de acuerdo con el Artículo 188 del C.S.T.
+
+### Artículo 25: Compensación de Vacaciones en Dinero
+Empleador y trabajador podrán acordar por escrito, previa solicitud del trabajador, que se pague en dinero hasta la mitad de las vacaciones. Para la compensación en dinero de las vacaciones, se tomará como base el último salario devengado por el trabajador, según el Artículo 189 del C.S.T.
+
+### Artículo 26: Acumulación de Vacaciones
+1. En todo caso, el trabajador gozará anualmente de al menos seis (6) días hábiles continuos de vacaciones, los cuales no son acumulables.
+2. Las partes podrán convenir en acumular los días restantes de vacaciones hasta por dos (2) años.
+3. La acumulación podrá ser hasta por cuatro (4) años, cuando se trate de trabajadores técnicos, especializados, de confianza, de manejo o de extranjeros que presten sus servicios en lugares distintos a los de la residencia de sus familiares.
+4. Si el trabajador goza únicamente de seis (6) días de vacaciones en un año, se presume que acumula los días restantes de vacaciones a las posteriores (Decreto 1072 de 2015, Artículo 2.2.1.2.2.2).
+
+### Artículo 27: Remuneración durante el Período de Vacaciones
+Durante el período de vacaciones, el trabajador recibirá el salario ordinario que esté devengando el día que comience a disfrutar de ellas. En consecuencia, solo se excluirán para la liquidación de las vacaciones el valor del trabajo en días de descanso obligatorio y el valor del trabajo suplementario o de horas extras. Cuando el salario sea variable, las vacaciones se liquidarán con el promedio de lo devengado por el trabajador en el año inmediatamente anterior a la fecha en que se concedan.
+
+#### Parágrafo 1: Vacaciones en Contratos a Término Fijo
+En los contratos a término fijo inferior a un (1) año, los trabajadores tendrán derecho al pago de vacaciones en proporción al tiempo laborado, cualquiera que este sea (Ley 50 de 1990, Artículo 3º, parágrafo).
+
+---
+
+## CAPÍTULO X: Permisos y Licencias
+
+### Artículo 28: Permisos Remunerados
+En Embutidos del Corral, concederemos a nuestros trabajadores permiso remunerado por el tiempo que sea necesario, en los siguientes casos:
+a) Cuando deban desempeñar cargos oficiales transitorios de forzosa aceptación.
+b) Para ejercer el derecho de sufragio.
+c) Ante una grave calamidad doméstica debidamente comprobada.
+d) Para asistir al entierro de sus compañeros de trabajo.
+e) Para asistir a citas médicas de urgencia o citas médicas programadas con especialistas, previa presentación de certificado médico.
+f) Para asistir a las obligaciones escolares como acudiente, en los que resulte obligatoria la asistencia del trabajador por requerimiento del centro educativo.
+g) Para atender citaciones judiciales, administrativas y legales.
+
+Estos permisos estarán sujetos a las siguientes condiciones:
+* El aviso se dará con tres (3) días de anticipación ante la Administración, previa autorización de Gerencia, exponiendo el motivo y la duración del permiso, excepto en el caso de grave calamidad doméstica en que el aviso debe darse de manera inmediata.
+* El número de trabajadores ausentes por estos motivos no deberá perjudicar la marcha de Embutidos del Corral (Numeral 6, Artículo 57, C.S.T.).
+Embutidos del Corral podrá, eventualmente, cancelar algún permiso si considera que afecta de manera importante el funcionamiento de la organización.
+
+#### Parágrafo 1: Acreditación de Permisos
+En todo caso, el trabajador, para la consecución del permiso, deberá acreditar los documentos que sirvan de soporte y justifiquen la calamidad o el motivo. Para fines de registro y control de novedades, el original de la solicitud, junto con los anexos correspondientes, deberá radicarse en la sede administrativa, con un tiempo mínimo de dos días o la anticipación que las circunstancias lo permitan.
+
+### Artículo 29: Permisos para Diligencias Personales
+Los permisos para diligencias personales se otorgarán una vez al mes.
+
+### Artículo 30: Compensación del Tiempo de Permiso
+Con excepción del permiso para concurrir al servicio médico, Embutidos del Corral podrá exigir la compensación del tiempo o recuperación del tiempo concedido por un tiempo igual de trabajo efectivo en horas distintas del horario de trabajo, sin que se constituya en trabajo suplementario.
+
+### Artículo 31: Licencia de Maternidad
+Toda trabajadora en estado de embarazo tiene derecho a una licencia de dieciocho (18) semanas en la época del parto, remunerada con el salario que devengue al entrar a disfrutar del descanso. Para los efectos de la licencia, la trabajadora debe presentar a la Empresa un certificado médico, en el cual deberá constar: (Ley 1822 de 2017)
+a) El estado de embarazo.
+b) La indicación del día probable del parto.
+c) La indicación del día desde el cual debe empezar la licencia, teniendo en cuenta que, por lo menos, ha de iniciarse dos (2) semanas antes del parto.
+
+### Artículo 32: Licencia de Paternidad
+El padre tendrá derecho a dos (2) semanas de licencia remunerada de paternidad (Ley 2114 de 2021).
+
+El único soporte válido para el otorgamiento de licencia remunerada de paternidad es el Registro Civil de Nacimiento, el cual deberá presentarse a la EPS a más tardar dentro de los treinta (30) días siguientes a la fecha del nacimiento del menor.
+
+### Artículo 33: Descanso Remunerado durante la Lactancia
+Embutidos del Corral está en la obligación de conceder a la trabajadora dos (2) descansos, de treinta (30) minutos cada uno, dentro de la jornada para amamantar a su hijo, sin descuento alguno en el salario por dicho concepto, durante los primeros seis (6) meses de edad; y una vez cumplido este periodo, un (1) descanso de treinta (30) minutos en los mismos términos hasta los dos (2) años de edad del menor; siempre y cuando se mantenga y manifieste una adecuada lactancia materna continua.
+
+### Artículo 34: Licencia por Luto
+Se concederá al trabajador, en caso de fallecimiento de su cónyuge, compañero o compañera permanente o de un familiar hasta el grado segundo de consanguinidad, primero de afinidad y primero civil, una licencia remunerada por luto de cinco (5) días hábiles. La grave calamidad doméstica no incluye la licencia por luto (Ley 1280 de 2009).
+
+| Parentesco | Grado |
+| :--- | :--- |
+| **Por Consanguinidad** | |
+| Padres | 1° |
+| Hijos | 1° |
+| Hermanos | 2° |
+| Abuelos | 2° |
+| Nietos | 2° |
+| **Por Afinidad** | |
+| Cónyuge | 1° |
+| Hijastros | 1° |
+| Suegros | 1° |
+| Abuelos del Cónyuge | 2° |
+| Cuñado | 2° |
+| **Civil** | |
+| Adopción | 1° |
+
+Este hecho deberá demostrarse mediante documento expedido por la autoridad competente, dentro de los quince (15) días siguientes a su ocurrencia.
+
+#### Parágrafo: Condiciones Adicionales para Permisos
+a) En caso de grave calamidad doméstica, la oportunidad del aviso puede ser anterior o posterior al hecho que lo constituye o al tiempo de ocurrir este, según lo permitan las circunstancias.
+b) En caso de entierro de compañeros de trabajo, el aviso puede ser hasta con un día de anticipación y el permiso se concederá hasta al 10% de los trabajadores.
+c) En los demás casos (sufragio, desempeño de cargos transitorios de forzosa aceptación y concurrencia al servicio médico correspondiente) el aviso se hará con la anticipación que las circunstancias lo permitan. Salvo convención en contrario y a excepción del caso de concurrencia al servicio médico correspondiente, el tiempo empleado en estos permisos puede descontarse al trabajador o compensarse con tiempo igual de trabajo efectivo en horas distintas a su jornada ordinaria, a opción de la empresa (C.S.T., Artículo 57, Numeral 6º).
+
+---
+
+## CAPÍTULO XI: Salario Mínimo, Convencional, Lugar, Días, Horas de Pagos y Períodos que lo Regulan
+
+### Artículo 35: Formas y Libertad de Estipulación del Salario
+1. En Embutidos del Corral, el empleador y el trabajador pueden convenir libremente el salario en sus diversas modalidades, como por unidad de tiempo, por obra o a destajo y por tarea, etc., pero siempre respetando el salario mínimo legal o el fijado en los pactos, convenciones colectivas y fallos arbitrales.
+2. No obstante lo dispuesto en los Artículos 13, 14, 16, 21 y 340 del C.S.T. y las normas concordantes con estas, cuando el trabajador devengue un salario ordinario superior a diez (10) salarios mínimos legales mensuales, será válida la estipulación escrita de un salario que, además de retribuir el trabajo ordinario, compense de antemano el valor de prestaciones, recargos y beneficios tales como el correspondiente al trabajo nocturno, extraordinario o al dominical y festivo, el de primas legales, extralegales, las cesantías y sus intereses, subsidios y suministros en especie; y en general, las que se incluyan en dicha estipulación, excepto las vacaciones.
+3. En ningún caso el salario integral podrá ser inferior al monto de diez (10) salarios mínimos legales mensuales, más el factor prestacional correspondiente a la empresa que no podrá ser inferior al treinta por ciento (30%) de dicha cuantía. El monto del factor prestacional quedará exento del pago de retención en la fuente y de impuestos.
+4. Este salario no estará exento de las cotizaciones a la seguridad social, ni de los aportes al SENA, ICBF y Cajas de Compensación Familiar, pero en el caso de estas tres últimas entidades, los aportes se disminuirán en un treinta por ciento (30%) (Numeral 3 del Artículo 18 de la Ley 50 de 1990).
+5. El trabajador que desee acogerse a esta estipulación, recibirá la liquidación definitiva de su auxilio de cesantía y demás prestaciones sociales causadas hasta esa fecha, sin que por ello se entienda terminado su contrato de trabajo (Numeral 4 del Artículo 18 Ley 50 de 1990).
+
+#### Parágrafo: Prestaciones Adicionales
+En Embutidos del Corral, no existen prestaciones adicionales a las legalmente obligatorias.
+
+### Artículo 36: Definición de Jornal y Sueldo
+Se denomina jornal el salario estipulado por días y sueldo el estipulado por períodos mayores (Artículo 133 C.S.T.).
+
+### Artículo 37: Lugar y Períodos de Pago
+Salvo convenio por escrito, el pago de los salarios se efectuará en el lugar en donde el trabajador presta sus servicios durante el trabajo o inmediatamente después que este cese (Artículo 138, numeral primero, C.S.T.). Los períodos de pagos serán quincenales vencidos, los cinco (5) primeros días de cada período subsiguiente.
+
+### Artículo 38: Modalidades de Pago y Recargos
+1. El salario en dinero debe pagarse por períodos iguales y vencidos. Las modalidades de pago de salarios serán en efectivo, cheque, transferencia y/o por consignación.
+2. El pago del trabajo suplementario o de horas extras y el recargo por trabajo nocturno debe efectuarse junto con el salario ordinario del período en que se han causado o a más tardar con el salario del período siguiente.
+
+### Artículo 39: Factores de Evaluación Objetiva del Trabajo
+Para garantizar la igualdad salarial y evitar discriminación, en Embutidos del Corral tendremos en cuenta criterios objetivos en la valoración y remuneración del trabajo, tales como:
+* Capacidades y competencias requeridas.
+* Esfuerzo físico y mental.
+* Nivel de responsabilidad.
+* Condiciones de riesgo inherentes al cargo.
+Ningún trabajador será objeto de trato desigual por razones de género, raza, religión, ideología política, identidad u orientación sexual, salud física o mental.
+
+---
+
+## CAPÍTULO XII: Servicio Médico, Riesgos Laborales y Sistema de Gestión en Seguridad y Salud en el Trabajo
+
+### Artículo 40: Obligaciones del Empleador en Salud y Seguridad
+En Embutidos del Corral, es nuestra obligación velar por la salud, seguridad e higiene de los trabajadores a nuestro cargo. Igualmente, es nuestra obligación garantizar los recursos necesarios para implementar y ejecutar actividades permanentes en medicina preventiva y del trabajo, y en higiene y seguridad industrial, de conformidad con el Sistema de Gestión de Seguridad y Salud en el Trabajo (SG-SST), y con el objeto de velar por la protección integral del trabajador.
+
+---
+
+## CAPÍTULO XIII: Prescripciones de Orden
+
+### Artículo 41: Deberes de los Trabajadores
+En Embutidos del Corral, reconocemos que el éxito de nuestra empresa se construye sobre la base del compromiso y la colaboración de cada uno de nuestros colaboradores. Por ello, establecemos los siguientes deberes fundamentales que guían nuestra convivencia y desempeño:
+a) Mantener el respeto y la subordinación hacia nuestros superiores, entendiendo que la jerarquía es esencial para la organización y eficiencia de nuestras operaciones.
+b) Cultivar el respeto hacia nuestros compañeros de trabajo, fomentando un ambiente de cordialidad y apoyo mutuo.
+c) Procurar una completa armonía en las relaciones personales y en la ejecución de las labores con superiores y compañeros, obrando siempre con espíritu de leal colaboración.
+d) Mantener una conducta ejemplar en todo sentido y obrar con un espíritu de leal colaboración en el orden moral y la disciplina general de la empresa.
+e) Ejecutar las tareas que se nos confíen con honradez, buena voluntad y la mayor diligencia posible, buscando siempre la excelencia en cada proceso.
+f) Realizar las observaciones, reclamos y solicitudes pertinentes por conducto del respectivo superior, de manera fundada, comedida y respetuosa.
+g) Recibir y aceptar las órdenes, instrucciones y correcciones relacionadas con el trabajo, con la verdadera intención de encaminar y perfeccionar nuestros esfuerzos en beneficio propio y de la empresa.
+h) Observar rigurosamente las medidas y precauciones que nos indique nuestro respectivo Jefe para el manejo seguro de las máquinas e instrumentos de trabajo.
+i) Permanecer durante la jornada de trabajo en el sitio o lugar asignado para nuestras labores, estando prohibido, salvo orden superior, pasar al puesto de trabajo de otros compañeros.
+
+### Artículo 42: Orden Jerárquico
+El orden jerárquico en Embutidos del Corral, de acuerdo con los cargos existentes, se consigna en el organigrama de la organización. Este organigrama es el mapa que define nuestras líneas de autoridad y responsabilidad, asegurando una estructura clara y funcional para todos.
+
+**Organigrama**
+*(Se insertará aquí el organigrama de la empresa)*
+
+#### Parágrafo: Facultades Sancionatorias
+De los cargos mencionados en el organigrama, tienen facultades para imponer sanciones disciplinarias a los trabajadores de la empresa los siguientes: Gerente y Administrador General.
+
+---
+
+## CAPÍTULO XIV: Labores Prohibidas para Menores de 18 Años
+
+### Artículo 43: Actividades Peligrosas y Restricciones
+En Embutidos del Corral, nos comprometemos a proteger la salud, seguridad y desarrollo de los menores de 18 años. Por ello, los menores de esta edad no podrán trabajar en actividades que los expongan a las siguientes condiciones de trabajo, las cuales están prohibidas por el riesgo que representan (Resolución 1796 de 2018 del Ministerio del Trabajo):
+1. Actividades que expongan a los menores a ruido continuo (más de 8 horas diarias) o intermitente que exceda los setenta y cinco (75) decibeles.
+2. Actividades que impliquen el uso de herramientas, maquinaria o equipos que los expongan a vibraciones en todo el cuerpo o segmentos, o la asignación de lugares o puestos de trabajo próximos a fuentes generadoras de vibración.
+3. Actividades asociadas al contacto o manipulación de sustancias radiactivas, pintura industrial, pinturas luminiscentes y sustancias que impliquen exposición a radiación.
+4. Actividades que impliquen la exposición a radiaciones ionizantes generadas por la proximidad a fuentes emisoras de rayos X, rayos gamma o beta y a radiaciones no ionizantes ultravioleta; exposición a electricidad por cercanía a fuentes generadoras como lámparas de hidrógeno, lámparas de gases, flash, arcos de soldadura, lámparas de tungsteno y halógenas, lámparas incandescentes y estaciones de radiocomunicaciones, entre otras, en concordancia con el Decreto número 2090 de 2003.
+5. Actividades de manipulación, operación o mantenimiento de herramientas manuales y maquinarias peligrosas de uso industrial, agrícola o minero; que pertenezcan a la industria metalmecánica, del papel, de la madera; sierras eléctricas circulares y de banda, guillotinas, máquinas para moler y mezclar, máquinas procesadoras de carne, molinos de carne.
+6. Actividades que impliquen la exposición, manejo, manipulación y uso o contacto con: contaminantes químicos; cancerígenos; genotóxicos; contaminantes inflamables o reactivos; químicos presentes en sustancias sólidas como monóxido de carbono, dióxido de azufre, óxidos de nitrógeno y sus derivados, cloro y sus derivados, amoníaco, cianuro, plomo, mercurio (compuestos orgánicos e inorgánicos); arsénico y sus compuestos tóxicos, asbestos, bencenos y sus homólogos, carbón mineral, fósforo y sus compuestos, hidrocarburos y sus derivados halógenos y otros compuestos del carbono (como el bisulfuro de carbono), metales pesados (cadmio, cromo) y sus compuestos, silicatos (polvo de sílice), alquitrán de hulla y sus derivados, cloruro de vinilo; sustancias cáusticas, ácido oxálico, nítrico, sulfúrico, bromhídrico, nitroglicerina-fosfórico; alcohol metílico; manganeso (permanganato potásico y otros compuestos del manganeso); escape de motores diésel o humos de combustión de sólidos.
+7. Actividades que se desarrollen en lugares con presencia de riesgos locativos tales como superficies defectuosas, escaleras o rampas en mal estado, techos defectuosos o en mal estado, problemas estructurales; trabajos en espacios confinados; puestos cercanos a arrumes elevados sin estibas, cargas o apilamientos apoyadas contra muros; en terrenos que por su conformación o topografía pueden presentar riesgos inminentes de derrumbes o deslizamientos de materiales.
+8. Actividades que impliquen alturas superiores a un metro y cincuenta centímetros (1,5 m).
+9. Actividades relacionadas con la manipulación de carga, levantar, transportar, halar, empujar objetos pesados de forma manual o con ayudas mecánicas, con los siguientes límites para adolescentes entre 16 y menos de 18 años de edad: Levantamiento intermitente (de frecuencia interrumpida): peso máximo de 15 kg para hombres y 8 kg para mujeres; Levantamiento incesante (de frecuencia continua): peso máximo 12 kg para hombres y 6 kg para mujeres. El transporte manual está limitado de la siguiente manera: adolescentes de 16 y menores de 18 años de edad: 20 Kg, adolescentes hombres hasta 16 años: 15 Kg, adolescentes mujeres hasta 16 años: 8 Kg. Para el transporte en carretas sobre carriles: adolescentes entre 16 y menos de 18 años de edad: 500 Kg, adolescentes hombres hasta 16 años: 300 Kg, y adolescentes mujeres hasta 16 años: 200 Kg. Para el transporte en carretillas manuales: adolescentes entre 16 y menos de 18 años de edad: 20 Kg.
+10. Actividades directas de la construcción o ingeniería civil, tales como el montaje y desmontaje de estructuras con base de elementos prefabricados, las transformaciones estructurales, la renovación, la reparación, el mantenimiento, la preparación de terreno, excavaciones y demoliciones. Y aquellas actividades en que se desempeñen como moldeadores, soldadores, chapistas, caldereros, montadores de estructuras metálicas, herreros, herramientitas.
+
+Los adolescentes entre 15 y menos de 18 años que hayan obtenido título de formación técnica o tecnológica expedido por el Servicio Nacional de Aprendizaje (SENA) o por instituciones debidamente acreditadas, podrán ser autorizados para trabajar en la actividad en la que fueron capacitados y podrán ejercer libremente la respectiva ocupación, arte, oficio o profesión, siempre que el contratante cumpla con lo establecido en el Decreto número 1295 de 1994, el Capítulo 3 del Título 6 de la Parte 2 del Libro 2 del Decreto número 1072 de 2015, Decreto Único Reglamentario del Sector Trabajo, en las Resoluciones 2346 de 2007 y 1111 de 2017, y en la Decisión 584 del 2004 Instrumento Andino de Seguridad y Salud en el Trabajo y la normativa vigente en seguridad y salud en el Trabajo.
+
+Queda prohibido el trabajo nocturno para los trabajadores menores. No obstante, los mayores de dieciséis (16) años y menores de dieciocho (18) años podrán ser autorizados para trabajar hasta las ocho (8) de la noche siempre que no se afecte su asistencia regular en un centro docente, ni implique perjuicio para su salud física o moral (Decreto 2737/89, Artículo 243).
+
+---
+
+## CAPÍTULO XV: Obligaciones Especiales de la Empresa y los Trabajadores
+
+### Artículo 44: Obligaciones Especiales de la Empresa
+En Embutidos del Corral, asumimos las siguientes obligaciones especiales como empleador:
+1. Poner a disposición de los trabajadores, salvo estipulación en contrario, los instrumentos adecuados y las materias primas necesarias para la realización de las labores.
+2. Procurar a los trabajadores locales apropiados y elementos adecuados de protección contra accidentes y enfermedades laborales, garantizando razonablemente la seguridad y la salud.
+3. Prestar de inmediato los primeros auxilios en caso de accidentes o enfermedad. Para este efecto, nuestro establecimiento mantendrá lo necesario según la reglamentación de las autoridades sanitarias.
+4. Pagar la remuneración pactada en las condiciones, períodos y lugares convenidos.
+5. Guardar absoluto respeto a la dignidad personal del trabajador, a sus creencias y sentimientos.
+6. Conceder al trabajador las licencias necesarias para los fines y en los términos indicados en los artículos 37 a 43 de este Reglamento.
+7. Dar al trabajador que lo solicite, a la expiración del contrato, una certificación en la que conste el tiempo de servicio, la índole de la labor y el salario devengado. Igualmente, si el trabajador lo solicita, hacerle practicar examen sanitario y darle certificación sobre el particular, si al ingreso o durante la permanencia en el trabajo hubiere sido sometido a examen médico. Se considerará que el trabajador, por su culpa, elude, dificulta o dilata el examen, cuando transcurridos cinco (5) días a partir de su retiro no se presenta donde el médico respectivo para la práctica del examen, a pesar de haber recibido la orden correspondiente.
+8. Pagar al trabajador los gastos razonables de venida y regreso, si para prestar su servicio lo hizo cambiar de residencia, salvo si la terminación del contrato se origina por culpa o voluntad del trabajador.
+9. Si el trabajador prefiere radicarse en otro lugar, costearle su traslado hasta la concurrencia de los gastos que demandaría su regreso al lugar donde residía anteriormente. En los gastos de traslado del trabajador, se entienden comprendidos los de los familiares que con él convivieren.
+10. Abrir y llevar al día los registros de horas extras y de trabajadores menores que ordena la ley.
+11. Conceder a las trabajadoras que estén en período de lactancia los descansos ordenados por el artículo 238 del Código Sustantivo del Trabajo.
+12. Conservar el puesto a las empleadas que estén disfrutando de los descansos remunerados a que se refiere el numeral anterior, o por licencia de enfermedad motivada en el embarazo o parto. No producirá efecto alguno el despido que se comunique a la trabajadora en tales períodos o que, si se acude a un preaviso, este expire durante los descansos o licencias mencionadas.
+13. Llevar un registro de inscripción de todas las personas menores de edad que empleemos, con indicación de la fecha de nacimiento de las mismas.
+14. Cumplir este reglamento y mantener el orden, la moralidad y el respeto a las leyes.
+15. Suministrar elementos de protección personal (EPP) de acuerdo con la exposición a riesgos.
+16. Suministrar dotación en los términos establecidos en la normatividad vigente.
+17. Además de las obligaciones especiales a cargo de la empresa, garantizaremos el acceso del trabajador menor de edad a la capacitación laboral y concederemos licencia no remunerada cuando la actividad escolar así lo requiera. Será también nuestra obligación afiliarlo al Sistema de Seguridad Social Integral, suministrarle cada cuatro (4) meses en forma gratuita un par de zapatos y un vestido de labor, teniendo en cuenta que la remuneración mensual sea hasta dos veces el salario mínimo vigente en la empresa (Artículo 57 C.S.T.).
+18. Conceder en forma oportuna a la trabajadora en estado de embarazo la licencia remunerada consagrada en el numeral 1 del artículo 236 del C.S.T., de forma que empiece a disfrutarla de manera obligatoria una (1) semana antes o dos (2) semanas antes de la fecha probable del parto, según decisión de la futura madre conforme al certificado médico a que se refiere el numeral 3 del citado artículo 236 (Artículo 3 de la Ley 1468 de 2011).
+
+### Artículo 45: Obligaciones Especiales del Trabajador
+En Embutidos del Corral, cada trabajador asume las siguientes obligaciones especiales:
+1. Realizar personalmente la labor, en los términos estipulados; observar los preceptos de este reglamento y acatar y cumplir las órdenes e instrucciones que de manera particular le imparta la empresa o sus representantes, según el orden jerárquico establecido.
+2. No comunicar a terceros, salvo autorización expresa, las informaciones que tenga sobre su trabajo, especialmente sobre asuntos que sean de naturaleza reservada y cuya divulgación pueda ocasionar perjuicios a la empresa. Esto no obsta para denunciar delitos comunes o violaciones del contrato o de las normas legales de trabajo ante las autoridades competentes.
+3. Conservar y restituir en buen estado, salvo el deterioro natural, los instrumentos y útiles que le hayan sido facilitados y las materias primas sobrantes.
+4. Guardar rigurosamente la moral en las relaciones con sus superiores y compañeros.
+5. Comunicar oportunamente a la empresa las observaciones que estime conducentes a evitarle daños y perjuicios.
+6. Prestar la colaboración posible en caso de siniestro o riesgo inminente que afecten o amenacen las personas o los bienes de la empresa.
+7. Observar las medidas preventivas higiénicas prescritas por el médico de la empresa o por las autoridades del ramo y observar con suma diligencia y cuidado las instrucciones y órdenes preventivas de accidentes o de enfermedades laborales.
+8. Registrar en las oficinas de la empresa su domicilio y dirección y dar aviso oportuno de cualquier cambio que ocurra (Artículo 58 C.S.T.).
+9. Usar los Elementos de Protección Personal (EPP) suministrados por el empleador.
+10. La trabajadora en estado de embarazo debe empezar a disfrutar la licencia remunerada consagrada en el numeral 1 del artículo 236, al menos una semana antes de la fecha probable del parto (Artículo 4 de la Ley 1468 de 2011).
+
+### Artículo 46: Prohibiciones a la Empresa
+En Embutidos del Corral, nos comprometemos a no realizar las siguientes acciones:
+1. Deducir, retener o compensar suma alguna del monto de los salarios y prestaciones en dinero que corresponda a los trabajadores, sin autorización previa escrita de estos para cada caso, o sin mandamiento judicial, con excepción de los siguientes:
+    a) Respecto de salarios, pueden hacerse deducciones, retenciones o compensaciones en los casos autorizados por los artículos 113, 150, 151, 152 y 400 del C.S.T.
+    b) Las cooperativas pueden ordenar retenciones hasta de un cincuenta por ciento (50%) de salarios y prestaciones, para cubrir sus créditos, en la forma y en los casos en que la ley las autorice.
+2. Obligar en cualquier forma a los trabajadores a comprar mercancías o víveres en almacenes o proveedurías que establezca el empleador.
+3. Exigir o aceptar dinero del trabajador como gratificación para que se le admita en el trabajo o por otro motivo cualquiera que se refiera a las condiciones de este.
+
+---
+
+## CAPÍTULO XVI: Disposiciones Finales (Añadido para estructura)
+
+### Artículo 47: Publicación y Vigencia
+El presente Reglamento Interno de Trabajo será publicado en un sitio visible de la empresa y en un canal electrónico, conforme a la normativa colombiana, y entrará en vigencia a partir de su publicación.
+
+***
+*Nota: Se corrigió la numeración de los Capítulos XIII y XIV en la parte final del texto original, que parecían duplicados. Se asumió que el último bloque de texto correspondía a la continuación lógica del documento.*
+***
+
